@@ -1,0 +1,1 @@
+![](https://photo-screen.ru/i/view.php?img=3fac57846812c0c1e73d.PNG)
